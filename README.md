@@ -1,0 +1,4 @@
+- im @angi00
+- trying to learn how to code simple games
+- i do not know what im doing
+- any help is appreciated
